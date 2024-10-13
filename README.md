@@ -1,1 +1,1 @@
-### 👨‍💻 Machine Learning Engineer & Researcher | 🧠 Passionate about Neuroscience & AI
+### 👨‍💻 Machine Learning Researcher | 🧠 Passionate about Neuroscience & AI
